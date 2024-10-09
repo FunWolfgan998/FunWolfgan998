@@ -1,7 +1,7 @@
 - 👋 Borsan Cristian
 - 👀 I’m interested in developing and playing videogames
 - 🌱 I’m currently learning flow charts
-- 📫 How to reach me 12999510@itisrooi.vi.it
+- 📫 How to reach me 12999510@itisrossi.vi.it
 - 😄 Pronouns: Ha/Ha
 - ⚡ Fun fact: To have a Max level beacon you need exactly 164 Ore Blocks
 
